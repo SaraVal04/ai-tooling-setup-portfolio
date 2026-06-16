@@ -9,9 +9,9 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: https://www.youtube.com/@MattDiggity
+- Website: [Diggity Marketing](https://diggitymarketing.com)
+- LinkedIn: [Diggity Marketing LinkedIn](https://www.linkedin.com/company/diggitymarketing)
 
 **Date Accessed:** June 2026
 
@@ -27,8 +27,8 @@
 **Links:**
 
 - YouTube: 
-- Website: 
-- LinkedIn: 
+- Website: [Nathan Gotch](https://nathangotch.com/)
+- LinkedIn: [Nathan Gotch LinkedIn](https://www.linkedin.com/posts/nathangotch_dominate-local-search-the-2026-ai-seo-blueprint-activity-7406365665336528896-BpxV)
 
 **Date Accessed:** June 2026
 
@@ -44,8 +44,8 @@
 **Links:**
 
 - YouTube: 
-- Website: 
-- LinkedIn: 
+- Website: [Julian Goldie SEO](https://juliangoldie.com)
+ - LinkedIn: [Julian Goldie LinkedIn](https://www.linkedin.com/in/juliangoldieseo/?skipRedirect=true)
 
 **Date Accessed:** June 2026
 
@@ -60,9 +60,9 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: Interviews & podcasts (no main channel)
+- Website: [Amsive](https://www.amsive.com)
+ - LinkedIn: [Lily Ray LinkedIn](https://www.linkedin.com/in/lily-ray-44755615/)
 
 **Date Accessed:** June 2026
 
@@ -77,9 +77,9 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: [Holistic SEO YouTube]
+- Website: [Holistic SEO](https://www.holisticseo.digital)
+ - LinkedIn: [Koray Tuğberk GÜBÜR LinkedIn](https://www.linkedin.com/in/koray-tugberk-gubur/)
 
 **Date Accessed:** June 2026
 
@@ -95,8 +95,8 @@
 **Links:**
 
 - YouTube: 
-- Website: 
-- LinkedIn: 
+- Website: [Foundation Marketing](https://foundationinc.co)
+ - LinkedIn: [Ross Simmonds LinkedIn](https://www.linkedin.com/in/rosssimmonds/)
 
 **Date Accessed:** June 2026
 
@@ -112,8 +112,8 @@
 **Links:**
 
 - YouTube: 
-- Website: 
-- LinkedIn: 
+- Website: [Future Tools](https://futuretools.io)
+ - LinkedIn: [Matt Wolfe LinkedIn](https://www.linkedin.com/in/matt-wolfe-30841712/?skipRedirect=true)
 
 **Date Accessed:** June 2026
 
@@ -128,9 +128,9 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: https://www.youtube.com/@AuthorityHackerPodcast
+- Website: [Authority Hacker](https://www.authorityhacker.com)
+ - LinkedIn: [Gael Breton LinkedIn](https://www.linkedin.com/in/gael-breton/)
 
 **Date Accessed:** June 2026
 
@@ -145,9 +145,9 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: https://www.youtube.com/@AuthorityHackerPodcast
+- Website: [Authority Hacker](https://www.authorityhacker.com)
+ - LinkedIn: [Mark Webster LinkedIn](https://www.linkedin.com/in/markwebster1/)
 
 **Date Accessed:** June 2026
 
@@ -162,8 +162,8 @@
 
 **Links:**
 
-- YouTube: 
-- Website: 
-- LinkedIn: 
+- YouTube: https://www.youtube.com/@niche-pursuits
+- Website: [Niche Pursuits](https://www.nichepursuits.com)
+ - LinkedIn: [Spencer Haws LinkedIn](https://www.linkedin.com/in/spencer-haws-b898b31/)
 
 **Date Accessed:** June 2026
